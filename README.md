@@ -1,2 +1,2 @@
-# Strive_Week_2_Firday_Team 
+# Strive_Week_2_Friday_Team 
  
